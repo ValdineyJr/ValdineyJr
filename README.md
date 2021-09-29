@@ -1,3 +1,3 @@
 # Valdiney
 
-![Alt Text](https://lh3.googleusercontent.com/proxy/ma0zQXQiVOgJSeL8dbDyoxQXEODdLRCEJvFKK4izXv_HzRVv_Ha7ycEpfS0uNMn2dbjfQ_At5cPv-etnxi_2NjYwnL2eHXEIxnZ_ro2NcnUy1STs)
+![Alt Text](https://c.tenor.com/6OE9Bi8A7X0AAAAC/joseph-and-avdol-joseph-avdol-stuck.gif)
